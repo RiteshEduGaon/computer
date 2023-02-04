@@ -1,2 +1,3 @@
-# computer
-hii everyone
+# Normal Wensie
+Follow This Code
+
